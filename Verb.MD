@@ -522,6 +522,27 @@
 
 ---
 
+## PART 24: May/Might
+**possible/possibly/likely
+Can/Could - able, unable, capable
+
+**May**
+- Example 1: *It may rain..* Possibility
+- Example 2: *May god help you.* Wishes/ blessing
+- Example 3: *We eat so that we may live.* Purpose
+- Example 1: *May I come in?* Permission
+
+**Might**
+- Example 1:
+
+
+
+
+
+
+
+---
+
 ## PART 25: TRICKY/IRREGULAR VERB FORMS (Vocabulary Notes)
 
 **Rule 106:** "**Cast, broadcast, telecast, forecast**" have the **same form** in V1, V2, and V3 (no "-ed" added).
