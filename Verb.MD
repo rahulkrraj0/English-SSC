@@ -1,5 +1,5 @@
 # VERB — Complete & Exhaustive Notes
-*(Every rule with 2 examples each)*
+
 
 ---
 
