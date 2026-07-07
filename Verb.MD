@@ -524,7 +524,7 @@
 
 ## PART 24: May/Might
 **possible/possibly/likely
-Can/Could - able, unable, capable
+-*Can/Could* - able, unable, capable
 
 **May**
 - Example 1: *It may rain..* Possibility
